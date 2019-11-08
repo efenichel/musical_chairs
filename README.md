@@ -9,3 +9,5 @@ The paper is "in press" at Journal of Economic Education.
 
 There is a spreadsheet for the spreadsheet/ paper and pencil version. See a video fo play here https://youtu.be/71RgANRiADs
 The ClassEx app https://youtu.be/K0RwenBSL3g is available at https://classex.uni-passau.de/wiki/. 
+
+Here is one user's experience with the game https://twitter.com/nilsadmoore/status/1175030953489719296 
