@@ -8,6 +8,6 @@ http://www.lse.ac.uk/GranthamInstitute/wp-content/uploads/2019/03/working-paper-
 The paper is in the Journal of Economic Education https://www.tandfonline.com/doi/full/10.1080/00220485.2019.1687379. 
 
 There is a spreadsheet for the spreadsheet/ paper and pencil version. See a video fo play here https://youtu.be/71RgANRiADs
-The ClassEx app https://youtu.be/K0RwenBSL3g is available at [https://classex.de/]. 
+The ClassEx app https://youtu.be/K0RwenBSL3g is available at https://classex.de/. 
 
 Here is one user's experience with the game https://twitter.com/nilsadmoore/status/1175030953489719296 
